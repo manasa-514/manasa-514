@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...fullstack developer
 - 🌱 I’m currently learning ...new technologies
 - 💞️ I’m looking to collaborate on ...fullstack developer
-- 📫 How to reach me ...@bmaasa04112004@gmail.com
+- 📫 How to reach me ...@bmanasa04112004@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
